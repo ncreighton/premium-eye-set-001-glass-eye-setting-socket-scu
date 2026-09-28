@@ -1,0 +1,2 @@
+# premium-eye-set-001-glass-eye-setting-socket-scu
+Tired of juggling spreadsheets, reference images, and scattered notes while setting glass eyes? The Glass Eye Setting &amp; Socket Sculpt Craft Hub brings your entire eye-setting workflow into one beautifully organized Notion workspace.  This purpose-built Notion template eliminates the chaos of managing glass eye projects, socket measurements, and scu
